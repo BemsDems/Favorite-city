@@ -1,1 +1,1 @@
-# Favorite-ity
+# Favorite-city
